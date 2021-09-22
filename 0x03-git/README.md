@@ -1,1 +1,1 @@
-"Revenge is never good, it kills the soul and poisons it." -El chavo del 8 
+"Revenge is never good, it kills the soul and poisons it." -Don Ramón
